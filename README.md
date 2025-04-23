@@ -4,7 +4,7 @@
 
 ## 🔗 Links Importantes
 
-- [Notion] # https://bolder-ice-30c.notion.site/Portf-lio-Curr-culo-Online-1de4a17cfd5580d484c4db77617c58a1?pvs=4
+- [Documentado para melhor visualização no Notion] # https://bolder-ice-30c.notion.site/Portf-lio-Curr-culo-Online-1de4a17cfd5580d484c4db77617c58a1?pvs=4
 
 
 
